@@ -1,2 +1,3 @@
 # DIG4639C
-In Class Exercise 2
+
+Hey yall! blah blah
